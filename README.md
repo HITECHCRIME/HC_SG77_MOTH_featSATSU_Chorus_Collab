@@ -1,1 +1,1 @@
-# HC_SG77_SATSU_MOTH_Collab
+# HC_SG77_SATSU_MOTH_Chorus_Collab
